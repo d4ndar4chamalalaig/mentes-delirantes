@@ -1,0 +1,2 @@
+# mentes-delirantes
+estudos
